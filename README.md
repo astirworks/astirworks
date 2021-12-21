@@ -1,5 +1,5 @@
 - 👋 Hi, WE are AstirWorks
-- 👀 a small company with focus on making creative stuff and making the World better place.
+- 👀 a small company with focus on making creative a stuff and making the World better place.
 ..
 - 📫 YOU can reach us on our website astirworks.com or via email info@astirworks.com
 
